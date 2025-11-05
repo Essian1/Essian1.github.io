@@ -1,1 +1,1 @@
-Mulling around some longer form ideas here. 
+Mulling around some longer form ideas here
